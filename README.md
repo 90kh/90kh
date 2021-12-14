@@ -1,11 +1,7 @@
-👋 Hi there! I'm 90kh. 
-
-� I like to fix buggy codes and projects. I also make my own websites!
-
-� Follow me for updates and ideas. :)
-
-� DON'T copy ANY projects that I make.
-
-� All games / updates that are published are made BY ME! SO DON'T TAKE ANY CREDIT! 
-
-� Have a wonderful day :) AND FOLLOW ME!!!!!!!!
+� What's up?
+� I'm 90kh!
+� I code and proxy games. Love to do that!
+� I go to New Britain High School in Conneticut!
+� Check out my website! Fun games to play on there.
+� WEBSTE LINK: https://github.com/90kh/90kh/projects/1
+� Off to code you brats more unblocked games... cya later.
